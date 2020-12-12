@@ -1,2 +1,8 @@
 # hello-world
-it's all about some new learning about my self 
+
+Hi Humans!
+
+Vinni here, I like computer and technology very much
+if you like me you can contact me 
+ALIEN
+
